@@ -1,0 +1,1 @@
+# Smart-shoe-for-blind-person
